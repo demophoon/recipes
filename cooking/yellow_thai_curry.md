@@ -49,52 +49,52 @@
 
 ## Yellow Curry
 
-Heat coconut oil on medium heat in saucepan until shimmery.
+1. Heat coconut oil on medium heat in saucepan until shimmery.
 
-Sauté sliced onions until they are translucent and fragrant.
+2. Sauté sliced onions until they are translucent and fragrant.
 
-Add sliced chicken and cook for about 5 minutes. The chicken should look just
+3.  Add sliced chicken and cook for about 5 minutes. The chicken should look just
 cooked on about half the surface.
 
-Add potatoes and curry paste. Throughly coat the chicken and potatoes in the
+4. Add potatoes and curry paste. Throughly coat the chicken and potatoes in the
 paste. Cook for another 2-5 minutes.
 > This is also the time to add in harder vegetables like carrots.
 
 
-Add cocounut cream, water, and additional add-ons to the pan. Reduce heat to
+5. Add cocounut cream, water, and additional add-ons to the pan. Reduce heat to
 low and bring to just below a simmer.
 > If there are bubbles your heat is too high. Cooking like this for too long
 > will cook the potatoes to the point where the starches leak into the curry
 > and you are left with a grainy curry instead of a smooth luscious curry.
 
 
-Cook for roughly 20-30 minutes. The chicken should be cooked all the way
+6. Cook for roughly 20-30 minutes. The chicken should be cooked all the way
 through and potatoes should be soft enough to bite through without being mushy.
 > Now is a great time to start thinking about cooking the rice!
 
 
-Turn heat off. Add coconut sugar and fish sauce; mix until incorporated.
+7. Turn heat off. Add coconut sugar and fish sauce; mix until incorporated.
 
 ## Jasmine Rice
 
-In a small pot, melt butter and salt together over medium heat.
+1. In a small pot, melt butter and salt together over medium heat.
 > The butter and salt will hiss and bubble. This should be about 30-60 seconds,
 > about the time it takes me to grab my rice container.
 
 
-Add rice and mix until all the rice has been coated in butter.
+2. Add rice and mix until all the rice has been coated in butter.
 
-Continue cooking until rice is fragrant and nutty. Roughly 3 minutes.
+3. Continue cooking until rice is fragrant and nutty. Roughly 3 minutes.
 > You mainly just don't want to burn the rice here, just give it some
 > additional flavors through the butter.
 
 
-Add in boiling water and immediately cover. Turn heat down to low to keep a
+4. Add in boiling water and immediately cover. Turn heat down to low to keep a
 simmer inside.
 > If adding non-boiling water, make sure to bring the rice up to a simmer
 > before covering.
 
 
-Simmer for 20 minutes then cut the heat and fluff with a fork.
+5. Simmer for 20 minutes then cut the heat and fluff with a fork.
 
-Plate and serve with curry.
+6. Plate and serve with curry.
